@@ -1,0 +1,1 @@
+There are my codeforces MAI contests and smth else for MAI.
